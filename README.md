@@ -1,2 +1,0 @@
-# loyiha-
-loyiha iwim
